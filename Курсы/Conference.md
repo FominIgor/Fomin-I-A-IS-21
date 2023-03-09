@@ -8,4 +8,4 @@
 https://drive.google.com/drive/folders/1wD6FAB6VoZmT0memTAKKaxv2_BK7rd0T?usp=share_link
 
 Сайт 
-https://tilda.cc/page/?pageid=34616070
+http://project6914882.tilda.ws/
