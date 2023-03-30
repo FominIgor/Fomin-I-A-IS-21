@@ -9,3 +9,6 @@ https://drive.google.com/drive/folders/1wD6FAB6VoZmT0memTAKKaxv2_BK7rd0T?usp=sha
 
 Сайт 
 http://project6914882.tilda.ws/
+
+Заявка 
+https://drive.google.com/file/d/1rVgTX4pHGEhc3jA-q_6vTdYe394G5IHm/view?usp=share_link
